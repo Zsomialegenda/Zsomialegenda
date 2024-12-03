@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Programming
 - 💞️ I’m looking to collaborate on (none right now)
 - 📫 How to reach me @zsomi_a_legenda on IG
-- 😄 Pronouns: He/him
+- 😄 Pronouns: Space/X
 - ⚡ Fun fact: I love weight training and Calistechnics
 
 <!---
